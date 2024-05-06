@@ -5,9 +5,7 @@
 
 🤔I'm looking for help with Exploring new technologies
 
-📫How to reach me: Email- anshulrawat.work@gmail.com
-
-😄Pronouns: He/His
+📫How to reach me: Email- rawatanshul522@gmail.com
 
 
 ## 🌐Socials
